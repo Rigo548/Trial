@@ -1,7 +1,7 @@
 #First Exp
 
 
-This is all new to me. 
+This is all new for this year
 
 
 
